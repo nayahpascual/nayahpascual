@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nayahpascual
+- 👀 I’m interested in coding (*also I'm a musician)
+- 🌱 I’m currently learning a lot ;)
+- 💞️ I’m looking to collaborate on anythign that could make people's live a bit better
+- 📫 How to reach me ? ring the bell !
